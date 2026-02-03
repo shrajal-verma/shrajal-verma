@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Shrajal Verma
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate front-end developer**
 
 Email Me 👉 ✉️ **oneandonlyshrajal007@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
