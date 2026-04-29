@@ -4,7 +4,7 @@
 Email Me 👉 ✉️ **oneandonlyshrajal007@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 🔭 I’m currently working on:
-Turning my soft skills into real-world strengths—communication, teamwork & leadership 💼✨
+Turning my soft skills into real-world strengths—communication, teamwork & leadership 💼✨<br>
 🌱 I’m currently learning:
 Web DevOps 🌐⚙️ (bridging development with deployment & real-world scalability)
 👯 I’m looking to collaborate on:
