@@ -6,19 +6,19 @@ Email Me 👉 ✉️ **oneandonlyshrajal007@gmail.com** For Collaboration/Projec
 🔭 I’m currently working on:
 Turning my soft skills into real-world strengths—communication, teamwork & leadership 💼✨<br>
 🌱 I’m currently learning:
-Web DevOps 🌐⚙️ (bridging development with deployment & real-world scalability)
+Web DevOps 🌐⚙️ (bridging development with deployment & real-world scalability)<br>
 👯 I’m looking to collaborate on:
-Real-world tech projects, startups & innovative ideas 💡
-📩 Let’s connect: oneandonlyshrajal@gmail.com
+Real-world tech projects, startups & innovative ideas 💡<br>
+📩 Let’s connect: oneandonlyshrajal@gmail.com<br>
 🤔 I’m looking for help with:
-Building impactful projects and exploring advanced DevOps practices 🚀
+Building impactful projects and exploring advanced DevOps practices 🚀<br>
 💬 Ask me about:
-Tech support 🛠️, collaboration 🤝, and learning strategies 📚
+Tech support 🛠️, collaboration 🤝, and learning strategies 📚<br>
 📫 How to reach me:
-📧 oneandonlyshrajal007@gmail.com
-(Always open to meaningful conversations!)
+📧 oneandonlyshrajal007@gmail.com<br>
+(Always open to meaningful conversations!)<br>
 😄 Pronouns:
-He/Him (and yes… a dedicated gym guy 💪)
+He/Him (and yes… a dedicated gym guy 💪)<br>
 ⚡ Fun fact:
 I don’t just love tech… I build with it daily 💻⚡
 
