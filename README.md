@@ -3,15 +3,24 @@
 
 Email Me 👉 ✉️ **oneandonlyshrajal007@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Enter your project info here
-- 🌱 **I’m currently learning:** Enter your tech here
-- 👯 **I’m looking to collaborate on:** Enter your project name and info
-- 🤔 **I’m looking for help with:** Your project here
-- 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:**oneandonlyshrajal007@gmail.com
-- 😄 **Pronouns:** Gym guy
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
-
+🔭 I’m currently working on:
+Turning my soft skills into real-world strengths—communication, teamwork & leadership 💼✨
+🌱 I’m currently learning:
+Web DevOps 🌐⚙️ (bridging development with deployment & real-world scalability)
+👯 I’m looking to collaborate on:
+Real-world tech projects, startups & innovative ideas 💡
+📩 Let’s connect: oneandonlyshrajal@gmail.com
+🤔 I’m looking for help with:
+Building impactful projects and exploring advanced DevOps practices 🚀
+💬 Ask me about:
+Tech support 🛠️, collaboration 🤝, and learning strategies 📚
+📫 How to reach me:
+📧 oneandonlyshrajal007@gmail.com
+(Always open to meaningful conversations!)
+😄 Pronouns:
+He/Him (and yes… a dedicated gym guy 💪)
+⚡ Fun fact:
+I don’t just love tech… I build with it daily 💻⚡
 
 
 ## 🌐 Socials:
