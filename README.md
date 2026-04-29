@@ -9,7 +9,6 @@ Turning my soft skills into real-world strengths—communication, teamwork & lea
 Web DevOps 🌐⚙️ (bridging development with deployment & real-world scalability)<br>
 👯 I’m looking to collaborate on:
 Real-world tech projects, startups & innovative ideas 💡<br>
-📩 Let’s connect: oneandonlyshrajal@gmail.com<br>
 🤔 I’m looking for help with:
 Building impactful projects and exploring advanced DevOps practices 🚀<br>
 💬 Ask me about:
